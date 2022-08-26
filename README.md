@@ -10,11 +10,10 @@ that process more efficient across various types of commercial sites and real es
 
 * Patent Penting 
 
--
-VASILIOS KAMBOURAS 
 
+--
+Vasilios Kambouras  
 President of Kambouras Management 
 
-call/text: 516.902.5167 
-
+call/text: 516.902.5167  
 Kambouras.mgmt@Gmail.com
